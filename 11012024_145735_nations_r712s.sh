@@ -1,0 +1,1 @@
+Canadians Scott Abbott and Chris Haney invented Trivial Pursuit. They were planning on playing Scrabble and realized that some of the pieces were missing so they came up with the idea of making their own game; Trivial Pursuit
